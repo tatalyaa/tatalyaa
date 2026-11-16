@@ -1,16 +1,5 @@
 ## Hi there 👋
 
-P R O F E S S I O N A L  S U M M A R Y
-
-Customer service professional with 4+ years of experience in remote and high-volume environments, 
-including healthcare, insurance, payroll, and utility services. Experienced in resolving customer 
-concerns, de-escalating challenging situations, supporting representatives, and maintaining accurate
-customer records. Skilled in communication, problem-solving, CRM systems, Microsoft Office, and 
-protecting confidential information. Currently pursuing an associate degree in Business Management at 
-Valencia College and a graduate of Orange Technical College’s cosmetology program. Seeking remote 
-customer service, customer support, or call center leadership opportunities where I can use my 
-experience, support team success, and continue growing professionally.
-
 E X P E R I E N C E
 
 October 2025 – Present
@@ -30,6 +19,7 @@ representatives.
 compliance. 
 • Protect confidential patient information while ensuring timely claim processing. 
 
+March 2025 – June 2025
 PPL | Payroll Specialist | Remote
 • Assisted employees with questions about payroll, taxes, benefits, paid time off, and wage 
 deductions.
@@ -59,21 +49,3 @@ Horne | Case Manager | Remote
 • Verified applicant documents for accuracy, completeness, and compliance with program 
 requirements.
 • Maintain confidential case files and accurate documentation.
-
-E D U C A T I O N
-Valencia College
-Associates degree in Business Management (Currently Enrolled)
-Orange Technical College
-Cosmetology (2024-2025)
-
-S K I L L S
-• Customer Service
-• Microsoft Office (Word, Excel, Outlook)
-• Data Entry and Documentation
-• CRM Software
-• Case Management
-• Benefits Verification
-• Verbal and Written Communication
-• Problem-Solving and Conflict Resolution
-• Team Leadership and Supervision
-• Time Management and Task Prioritization
